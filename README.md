@@ -1,0 +1,1 @@
+# shashinma.github.io
